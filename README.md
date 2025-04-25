@@ -1,4 +1,4 @@
-Hi 👋 My name is Antonio Xngar
+Hi 👋 My name is Xngar
 ==============================
 
 ### Skills
